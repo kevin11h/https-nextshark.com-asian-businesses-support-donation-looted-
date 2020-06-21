@@ -1,4 +1,6 @@
-# https-nextshark.com-asian-businesses-support-donation-looted-
+# Supporting Asian Businesses & Seriously Strategy on Cunning Creating Stability in Our Overseas Asian Community +  Resilient Economy
+
+## https-nextshark.com-asian-businesses-support-donation-looted-
 
 Please give back to our harmed local Asian shops suffering during the ongoing pandemic & protests
 
